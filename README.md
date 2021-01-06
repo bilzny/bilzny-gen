@@ -1,1 +1,1 @@
-ai nobru apelaoooo
+Minecraft, Spotify, NordVPN, Origin, Hulu & Discord Nitro generator.
